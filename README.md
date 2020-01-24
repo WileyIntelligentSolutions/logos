@@ -1,0 +1,2 @@
+# logos
+Dōmo arigatō
